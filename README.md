@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **vijaykakde496@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:</h3>www.linkedin.com/in/vijaykakde496
 <p align="left">
 </p>
 
